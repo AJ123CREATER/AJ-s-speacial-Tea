@@ -1,4 +1,4 @@
-# AJ-s-speacial-Tea
+# AJ's speacial Tea
  1)First Take milk as per your need in a suitable bowl to to make tea.
  2)Then light the gas and place your suitable bowl which contains milk.
  3)Then put powder of tea leaves(3/2 spoon per person)and suger(2 spoon per person).
